@@ -1,7 +1,10 @@
-#等一等我
-你太急切的想要一个答案了。想要风光的学位，
-瞬间的博学， 想要意气风发，想闪着金光走向喜欢的人。
-但现实告诉我，操之过急便会败北，他要我等， 要我耐得住不断延长的时间线，要我交付出足够的努力堆砌在沉闷、晦涩的时光里，才肯将一切我想要的一点一点递送至我手里。
+#Love alters not with his brief hours and weeks.
+
+But bears it out even to the edge of doom.
+
+If this be error and upon me proved.
+
+I never writ, nor no man ever loved.
 
 
 
